@@ -1,0 +1,1 @@
+# People-in-a-room-giving-a-dollar-to-random-others-in-a-welfare-state
